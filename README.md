@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Fay206
 - 👀 I’m interested in Web3
 - 🌱 I’m currently learning Web3 Ai
-- 💞️ I’m looking to collaborate on 💀
+- 💞️ I’m looking to collaborate on Merch
 - 📫 How to reach me 💀
 - 😄 Pronouns: 💀
 - ⚡ Fun fact: 💀
